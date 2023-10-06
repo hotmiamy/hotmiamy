@@ -12,6 +12,7 @@ Aoba tudo certo, fique avontede para bisbilhotas meus códigos
 
 ## Connect with me
 [<img align="left" alt="linked-in" src="https://img.shields.io/badge/linkedin-%230077B5.svg?&style=for-the-badge&logo=linkedin&logoColor=white" />](https://www.linkedin.com/in/lucas-lopes-nunes-3a5b68219/)
+[<img align="left" alt="linked-in" src="https://img.shields.io/badge/instagram-%23833AB4.svg?&style=for-the-badge&logo=instagram&logoColor=red" />](https://www.instagram.com/lucas_lopys66/)
 <br>
 
 <div>
